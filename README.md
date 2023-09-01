@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pigblu
+- 👋 Hi, I’m @pigblu.
 - 👋 a blue pig
 - 👋
 - 👋 👋
